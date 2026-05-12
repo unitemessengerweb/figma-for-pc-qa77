@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Inkscape for PC | Inkscape for Windows extension with Inkscape for PC | Inkscape for Windows top Extension: node-editing & style-panels. Featuring node-editing
 
 
 
